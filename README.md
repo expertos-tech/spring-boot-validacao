@@ -5,7 +5,7 @@ Parte 1: https://youtu.be/cP2x9zD9wDc<br>
 Parte 2: https://youtu.be/ZJwkavxFfKI<br>
 Parte 3: https://youtu.be/15XMEG-14mA
 
-Playlist: https://youtu.be/WM8Ty4ITcFc&list=PLTN1gMq8EHuIpxyecEp04TvLr3TQbzMRL
+Playlist: https://youtu.be/cP2x9zD9wDc&list=PLTN1gMq8EHuIimFrfOD8-Bib9Meg4pTPI
 
 **Redes Sociais:** https://linktr.ee/expertostech  
 
